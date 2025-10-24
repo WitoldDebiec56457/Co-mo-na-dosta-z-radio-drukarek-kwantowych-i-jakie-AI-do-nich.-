@@ -8,3 +8,4 @@ Kali i C piton promuje swoje radio wędki schowki elektronizne procesory oszczę
 Oszczędzaczyki i oszczędzacze to złodziejki są, zawsze w piątek zawsze w czwartek wyborcza. 
 Radio drukarka kwantowe drukuje po 1 sekundzie a oszczędzaczyk oszczędzacz radio wędka schowek elektroniczny procesor drukuje po analizie danych po 1 dniu. Co czyni go mianem post zakupów okazjonalnych.  
 Ci do systemu są bardzo drodzy i mali w objętności zakupów oferowanych przez nich i są niepełnosprawni mało oferują dlatego się mówi na nich małe post zakupy okacjonalne.  
+Z radio drukarek kwantowych można wyjmować place palet z produktami z oszczędzaczy i oszczędzaczyków można wyjmować 1 małą paletę z zakupami raz na 1 dzień. 
