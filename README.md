@@ -5,3 +5,4 @@ Syf od oszczędzaczy i oszczędzaczyków eco frendli to syf kupowany masowo prze
 To co jest z radio drukarki kwnatowej to jest ze sklepu Jubilera. 
 Jak pasują wam radio drukarki kwantowe to powiedzcie że oszczędzaczyki i oszczędzacze czyli radio wędka na radio ze schowkiem elektronicznym i procesorem porównawczym i naukowym nie jest wam już potrzebne. Że macie radio druakrki kwantowe aby obalić C pitona i Kaliego jego radio wędkę złodziejską złodziejke. 
 Kali i C piton promuje swoje radio wędki schowki elektronizne procesory oszczędzaczyki i oszczędzacze to ustrojstwo promuje wojsem przekonując o tym że on jest ważniejszy dla świata niż ja i moje radio drukarki kwantowe i promuje oszczędzacze i oszczedzaczyki jako produkt idealny nawet jak kradnie z magazynu orginały a druakarka jej rysuje i drukuje bo ma wyobraźnie.  
+Oszczędzaczyki i oszczędzacze to złodziejki są, zawsze w piątek zawsze w czwartek wyborcza. 
