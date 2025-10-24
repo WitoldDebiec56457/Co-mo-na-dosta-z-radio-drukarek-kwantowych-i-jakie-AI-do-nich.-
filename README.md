@@ -3,3 +3,4 @@ Radio drukarki kwantowe można z nich dostać rzeczy z Amazon lub Ali Expres czy
 Jak ktoś usłyszy słowo nie potrzebujemy drukarek kwantowych jakby to był głos kortanki a raczej kaliego linuxa to powiedzcie że nie potrzebujecie już amazonu allegro i ali expres i ebay i kaliego linuxa już też nie chcecie bo macie drukarki radio kwantowe drukarki 3D 4D. 
 Syf od oszczędzaczy i oszczędzaczyków eco frendli to syf kupowany masowo przez firme Syntom SA. 
 To co jest z radio drukarki kwnatowej to jest ze sklepu Jubilera. 
+Jak pasują wam radio drukarki kwantowe to powiedzcie że oszczędzaczyki i oszczędzacze czyli radio wędka na radio ze schowkiem elektronicznym i procesorem porównawczym i naukowym nie jest wam już potrzebne. Że macie radio druakrki kwantowe aby obalić C pitona i Kaliego jego radio wędkę złodziejską złodziejke. 
